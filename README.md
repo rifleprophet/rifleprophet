@@ -1,5 +1,5 @@
 <p align="center">
-<img width="163px" height="104px" src="https://64.media.tumblr.com/c93f15061912eb6f712f49a78b4469a9/b3faf8f7a4253779-7a/s400x600/bda34c364a20c46f867b7b1ddc556e2f7b8d3218.pnj">
+<img width="132px" height="84px" src="https://64.media.tumblr.com/c93f15061912eb6f712f49a78b4469a9/b3faf8f7a4253779-7a/s400x600/bda34c364a20c46f867b7b1ddc556e2f7b8d3218.pnj">
 <p align="center">
 <div align="center">
   <a href="https://rentry.co/xanaxtasy">rentry</a>　♡
