@@ -2,7 +2,7 @@
 <img width="100px" height="100px" src="https://file.garden/aTN1R0deYkPxCX0D/smileydawg.gif">
 <p align="center">
 <div align="center">
-  <a href="https://fluffle.cc/wednesday13">♡</a>　
+  <a href="https://rentry.co/xanaxtasy">rentry</a>　
   ㅤ￴<a href="https://pronouns.cc/@xanaxtasy">pronouns</a>￴￴　
 　<a href="https://xanaxtasy.atabook.org/">atabook</a>￴
 </div>
