@@ -2,8 +2,8 @@
 <img width="100px" height="100px" src="https://64.media.tumblr.com/966d6740f367521e0cc921cc4b7215b1/94d5bc420db9b043-ba/s540x810/7fcb42931aae2d316ac203923d2e3965e86771da.webp">
 <p align="center">
 <div align="center">
-  <a href="https://rentry.co/xanaxtasy">rentry</a>　
-  ㅤ￴<a href="https://pronouns.cc/@xanaxtasy">pronouns</a>￴￴　
+  <a href="https://rentry.co/xanaxtasy">rentry</a>　♡
+  ㅤ￴<a href="https://pronouns.cc/@xanaxtasy">pronouns</a>￴￴　♡
 　<a href="https://xanaxtasy.atabook.org/">atabook</a>￴
 </div>
 <p align="center">
