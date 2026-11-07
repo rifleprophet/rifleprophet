@@ -2,9 +2,9 @@
 <img width="120px" height="120px" src="https://file.garden/aTN1R0deYkPxCX0D/mistyy.jpg">
 <p align="center">
 <div align="center">
-  <a href="https://rentry.co/xanaxtasy">rentry</a>　♡
-  ㅤ￴<a href="https://pronouns.cc/@xanaxtasy">pronouns</a>￴￴　♡
-　<a href="https://xanaxtasy.atabook.org/">atabook</a>￴
+  <a href="https://rentry.co/stagseer">rentry</a>　♡
+  ㅤ￴<a href="https://pronouns.cc/@stagseer">pronouns</a>￴￴　♡
+　<a href="https://stagseer.atabook.org/">atabook</a>￴
 </div>
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
