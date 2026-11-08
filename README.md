@@ -1,6 +1,6 @@
 <p align="center">
-<img width="110px" height="110px" src="https://r2.guns.lol/d7d2dcef-d74e-4c92-a9e4-fc67a087c94e.webp">
- <img width="110px" height="110px" src="https://r2.guns.lol/39846acb-7ac8-42c3-948c-47bb113c68e8.webp">
+<img width="110px" height="110px" src="https://file.garden/aTN1R0deYkPxCX0D/nattiel4t.png">
+ <img width="110px" height="110px" src="https://file.garden/aTN1R0deYkPxCX0D/lottien4t.png">
 <p align="center">
 <div align="center">
   <a href="https://rentry.co/stagseer">rentry</a>　🂽
