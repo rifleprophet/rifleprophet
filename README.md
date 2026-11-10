@@ -1,11 +1,10 @@
 <p align="center">
-<img width="110px" height="110px" src="https://file.garden/aTN1R0deYkPxCX0D/nattiel4t.png">
- <img width="110px" height="110px" src="https://file.garden/aTN1R0deYkPxCX0D/lottien4t.png">
+<img width="248px" height="121px" src="https://64.media.tumblr.com/d155d2c21aea2213bfe04a4bf984b0c1/14528f313c5e41c5-5f/s2048x3072/4d16c8757aaec6c03362a68cf58a90ecd45b4cb9.jpg">
 <p align="center">
 <div align="center">
   <a href="https://rentry.co/rifleprophet">rentry</a>　🂽
-  ㅤ￴<a href="https://pronouns.cc/@rifleprophet">pronouns</a>￴￴　🂽
-　<a href="https://rifleprophet.atabook.org/">atabook</a>￴
+  ㅤ￴<a href="https://pronouns.cc/@vanpalmer">pronouns</a>￴￴　🂽
+　<a href="https://vanpalmer.atabook.org/">atabook</a>￴
 </div>
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
