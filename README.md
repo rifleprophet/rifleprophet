@@ -3,7 +3,6 @@
 <p align="center">
 <div align="center">
   <a href="https://rentry.co/vanessapalmer">rentry</a>　🂽
-  ㅤ￴<a href="https://pronouns.cc/@vanpalmer">pronouns</a>￴￴　🂽
 　<a href="https://vanpalmer.atabook.org/">atabook</a>￴
 </div>
 <p align="center">
