@@ -1,5 +1,5 @@
 <p align="center">
-<img width="248px" height="121px" src="https://64.media.tumblr.com/d155d2c21aea2213bfe04a4bf984b0c1/14528f313c5e41c5-5f/s2048x3072/4d16c8757aaec6c03362a68cf58a90ecd45b4cb9.jpg">
+<img width="120px" height="120px" src="https://64.media.tumblr.com/484fd59d106629ff40625207d87c3367/dc4271797cb64230-af/s540x810/6182cbfc4235065f9a39c6c3d5fd7ec225379641.gifv">
 <p align="center">
 <div align="center">
   <a href="https://rentry.co/vanessapalmer">rentry</a>　🂽
